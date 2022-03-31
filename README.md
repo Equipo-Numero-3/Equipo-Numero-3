@@ -1,1 +1,0 @@
-# Equipo-Numero-3
